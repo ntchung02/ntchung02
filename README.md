@@ -1,5 +1,4 @@
 ## Hi there 👋
-i am Student at Đại học công nghệ thông tin và truyền thông việt - hàn
 
 
 ## 🌐 Socials:
